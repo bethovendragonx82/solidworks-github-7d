@@ -1,0 +1,1 @@
+# solidworks-github-7d
